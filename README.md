@@ -8,3 +8,6 @@ Instructions:
 2. press "check" when you are ready
 
 Tip: Use tab to hop through the textboxes and buttons
+
+I AM NOT DONE PUTTING ALL OF THE ANIONS ON YET.
+      (I am in all caps so you will notice me)
